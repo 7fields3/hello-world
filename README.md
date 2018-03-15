@@ -1,2 +1,4 @@
 # hello-world
-I'm 12 and what is this
+
+Every day is a trial by fire. 
+I am burning in hell.
